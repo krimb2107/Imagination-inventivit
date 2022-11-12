@@ -1,1 +1,0 @@
-Cette réalisation date à février 2022, où j'ai désigné cette présentation pour le centre de soutien scolaire et universitaire Le Maestro Academy, plus précisement pour la session du professeur Mohamed MAZIGHI.
