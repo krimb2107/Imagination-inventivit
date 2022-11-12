@@ -1,1 +1,0 @@
-Cette réalisation date à 30 juin 2022, où j'ai désigné cette présentation qui mets le point sur l'évolution de notre projet, et le lancement de notre startup, lors l'événement : séminaire de OMEA « RSE et ODC Africa » à la filiale Orange Digitale Center Maroc.   
