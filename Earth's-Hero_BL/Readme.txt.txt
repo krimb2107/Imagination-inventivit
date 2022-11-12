@@ -1,1 +1,0 @@
-Cette réalisation date à Juin 2022, où j'ai désigné cette présentation à l'issue de notre succès d'avoir gagné le 2éme prix de la compétition international Cityz'en challenge oragnisé par l'entreprise Berger-Levrault, acev le projet Earth's Hero qui est une application de jeux mobile.
